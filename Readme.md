@@ -1,4 +1,4 @@
-### Hi there, I am Alvin Felix 👋
+### Hi there, I am Boris Crypto 👋
 
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=neuropol&color=%234E14B8&size=24&lines=I'am+Senior+Full-Stack+Engineer+Blockchain+Developer.;Rich+experience;Deep+knowledge+and+skills)](https://git.io/typing-svg)
